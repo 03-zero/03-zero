@@ -2,7 +2,7 @@
   <img src=https://i.pinimg.com/736x/77/5e/d7/775ed74120f44c9640e39668f7410ba9.jpg>
 </p>
 
-<p align="center">. ✦ [ ' Pray to any higher power you believe in that the Founders will have mercy on your soul. ' ] ✦ .
+<p align="center">. ✦ [ ' <em>Pray to any higher power you believe in that the Founders will have mercy on your soul.</em> ' ] ✦ .
 </p>
 
 <p align="center">
