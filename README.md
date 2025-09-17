@@ -37,6 +37,3 @@
 <p align="center">
   <img src="https://i.imgur.com/oCT0pUs.png">
 </p>
-
-╰ Sɪɴɢᴜʟᴀʀɪᴛʏ Cᴏʀᴘᴏʀᴀᴛɪᴏɴ .
-</p>
