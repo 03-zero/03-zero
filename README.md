@@ -1,16 +1,42 @@
-## Hi there 👋
+<p align="center">
+  <img src=https://i.pinimg.com/736x/77/5e/d7/775ed74120f44c9640e39668f7410ba9.jpg>
+</p>
 
-<!--
-**03-zero/03-zero** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">. ✦ [ ' lalala ' ] ✦ .
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5f87f1d0-3696-4cf6-b649-b640f5c33616/d9w3o8p-516f5f21-1ba4-4d80-9f7c-413eaa228e07.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi81Zjg3ZjFkMC0zNjk2LTRjZjYtYjY0OS1iNjQwZjVjMzM2MTYvZDl3M284cC01MTZmNWYyMS0xYmE0LTRkODAtOWY3Yy00MTNlYWEyMjhlMDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4p-BlHAWM4ouH-ZQW7giTbLmpgkUB-n2k47cL3V43AY">
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">- : [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
+</p>
+
+<p align="center">─ Note: [ <em>I have some lore on my character, you can find it on the link :3</em> ]
+</p>
+
+<p align="center">
+  <img src="https://i.imgur.com/MkevGHR.png">
+</p>
+
+<p align="center">: Silver<strong> / </strong>Zero :
+</p>
+
+<p align="center">: I'm <strong>18+</strong> :
+</p>
+
+<p align="center">: She/<strong>They</strong> :
+</p>
+
+<p align="center">: Lesbian :
+</p>
+
+<p align="center">: EST Timezone :
+</p>
+
+<p align="center">
+  <img src="https://i.imgur.com/oCT0pUs.png">
+</p>
+
+╰ Sɪɴɢᴜʟᴀʀɪᴛʏ Cᴏʀᴘᴏʀᴀᴛɪᴏɴ .
+</p>
