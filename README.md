@@ -16,7 +16,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/MkevGHR.png">
+  <img src="https://i.imgur.com/hMmZgSN.png">
 </p>
 
 <p align="center">: Silver<strong> / </strong>Zero :
@@ -35,5 +35,5 @@
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/oCT0pUs.png">
+  <img src="https://i.imgur.com/bq33N7D.png">
 </p>
