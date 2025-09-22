@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
-  ─〡: [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
+  ╰〡: [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
 </p>
 
 <p align="center">
