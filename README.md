@@ -2,7 +2,9 @@
   <img src=https://i.pinimg.com/736x/77/5e/d7/775ed74120f44c9640e39668f7410ba9.jpg>
 </p>
 
-<p align="center">. ✦ [ ʻ <em>You're lucky we have mercy.</em> ʼ ] ✦ .
+<p align="center">
+  <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d99f683e-b226-4ed9-9922-5e94fb70fdd6/dkkv1ln-5433ce2e-aef4-44af-be64-a81f71e83f01.gif?>
+  . ✦ [ ʻ <em>You're lucky we have mercy.</em> ʼ ] ✦ .
 </p>
 
 <p align="center">
