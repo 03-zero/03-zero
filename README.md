@@ -12,7 +12,9 @@
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5f87f1d0-3696-4cf6-b649-b640f5c33616/d9w3o8p-516f5f21-1ba4-4d80-9f7c-413eaa228e07.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi81Zjg3ZjFkMC0zNjk2LTRjZjYtYjY0OS1iNjQwZjVjMzM2MTYvZDl3M284cC01MTZmNWYyMS0xYmE0LTRkODAtOWY3Yy00MTNlYWEyMjhlMDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4p-BlHAWM4ouH-ZQW7giTbLmpgkUB-n2k47cL3V43AY">
 </p>
 
-<p align="center">- : [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
+<p align="center">
+  <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d99f683e-b226-4ed9-9922-5e94fb70fdd6/dkkv3l1-9ac2b3e3-0668-4e09-a435-7d9f510fe27f.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9kOTlmNjgzZS1iMjI2LTRlZDktOTkyMi01ZTk0ZmI3MGZkZDYvZGtrdjNsMS05YWMyYjNlMy0wNjY4LTRlMDktYTQzNS03ZDlmNTEwZmUyN2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.92VQ3Na8K-Mii7YXFskaXO9riAdFRCYcFbgbgpQ1pOw>
+  - : [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
 </p>
 
 <p align="center">─ Note: [ <em>I have some lore on my character, you can find it on the link :3</em> ]
