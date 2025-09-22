@@ -14,7 +14,7 @@
 
 <p align="center">
   <img src=https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d99f683e-b226-4ed9-9922-5e94fb70fdd6/dkkv3l1-9ac2b3e3-0668-4e09-a435-7d9f510fe27f.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9kOTlmNjgzZS1iMjI2LTRlZDktOTkyMi01ZTk0ZmI3MGZkZDYvZGtrdjNsMS05YWMyYjNlMy0wNjY4LTRlMDktYTQzNS03ZDlmNTEwZmUyN2YucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.92VQ3Na8K-Mii7YXFskaXO9riAdFRCYcFbgbgpQ1pOw>
-  - : [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : &lt;
+  ㅤ─〡: [ <a href="https://characterhub.com/character/zer0-mKWh6FuD?v=1">Character Hub!</a> ] : . &lt;
 </p>
 
 <p align="center">─ Note: [ <em>I have some lore on my character, you can find it on the link :3</em> ]
