@@ -3,9 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.postimg.cc/0jHtLVgt/super-tiny-star.png">
-  ㅤ. ✦ [ ʻ <em>You are lucky we have mercy.</em> ʼ ] ✦ .ㅤ
-  <img src="https://i.postimg.cc/0jHtLVgt/super-tiny-star.png">
+  <img src="https://i.postimg.cc/DZftg3H3/Untitled341-20260803230507.png">
 </p>
 
 <p align="center">
